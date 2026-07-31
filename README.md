@@ -1,6 +1,6 @@
 # Jason Fenter
 
-Garland, Texas · <email and phone number available upon request>
+Garland, Texas · &lt;email and phone number available upon request&gt;
 
 ## Summary
 
