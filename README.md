@@ -1,6 +1,6 @@
 # Jason Fenter
 
-Garland, Texas · fenterbug@gmail.com · 972.322.0232
+Garland, Texas · <email and phone number available upon request>
 
 ## Summary
 
